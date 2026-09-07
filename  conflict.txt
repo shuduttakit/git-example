@@ -1,7 +1,7 @@
 Round 1
     Me :Rock, Sim : Paper, [I won]
 Round 2
-    Me :Rock, Sim : Rcck, [Draw]
+    Me :Rock, Sim : Rock, [Draw]
 Round 3
     Me :Rock, Sim : Scissors, [I Lose]
 end
