@@ -1,7 +1,7 @@
 Round 1
-
+    Paper
 Round 2
-
+    Rock
 Round 3
-
+    Scissors
 end
