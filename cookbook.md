@@ -17,7 +17,7 @@ Apple cake
 1 cup (approximately 1 large) red apple, peeled and roughly chopped
 2 large eggs
 1 teaspoon vanilla extract
-120 ml (1/2 cup) vegetable oil or flavourless oil
+120 ml (1/2 cup) vegetable oil
 120 ml (1/2 cup) Greek yogurt
 
 Vegan Vanilla Layer Cake with Raspberry Jam:
