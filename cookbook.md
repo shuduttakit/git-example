@@ -5,3 +5,17 @@ Add wet ingredients to dry ingredients and gently mix with a wooden spoon until 
 To make cinnamon topping, combine sugar, cinnamon and butter. Mix together until lumpy and wet. Sprinkle over cake batter.
 Bake cake for approximately 30-35 minutes or until a skewer inserted into the middle comes out clean. Transfer cake to a wire rack to cool completely.
 To make the glaze, mix together sugar and 1 tablespoon of milk. Stir until smooth. If the glaze is too thick, add an extra tablespoon of milk. Drizzle glaze all over the cake.
+
+Add ingredients
+Apple cake
+
+210 grams (1 and 1/2 cups) plain flour or all purpose flour
+2 teaspoons baking powder
+1/2 teaspoon baking soda
+1/4 teaspoon salt
+150 grams (3/4 cup) caster sugar or granulated sugar
+1 cup (approximately 1 large) red apple, peeled and roughly chopped
+2 large eggs
+1 teaspoon vanilla extract
+120 ml (1/2 cup) vegetable oil or flavourless oil
+120 ml (1/2 cup) Greek yogurt
